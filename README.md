@@ -27,3 +27,4 @@ Patricia Döhle, Autorin, brand eins & Gründerin, brand eins safari
 
 * https://gedankenwelt.de/9-zeichen-fuer-psychologische-manipulation/
 * https://carsten-bach.com/manipulationstricks-und-manipulative-rhetorik-so-lassen-sie-sich-nicht-mehr-manipulieren
+* Gewaltfreie Kommunikation Nach Rosenberg
