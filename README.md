@@ -26,5 +26,4 @@ Patricia Döhle, Autorin, brand eins & Gründerin, brand eins safari
 * Unpleasant Design: https://www.youtube.com/watch?v=NWZLB8CyPbM
 
 * https://gedankenwelt.de/9-zeichen-fuer-psychologische-manipulation/
-*
-https://carsten-bach.com/manipulationstricks-und-manipulative-rhetorik-so-lassen-sie-sich-nicht-mehr-manipulieren
+* https://carsten-bach.com/manipulationstricks-und-manipulative-rhetorik-so-lassen-sie-sich-nicht-mehr-manipulieren
