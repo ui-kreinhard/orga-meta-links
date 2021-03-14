@@ -24,8 +24,8 @@ Patricia Döhle, Autorin, brand eins & Gründerin, brand eins safari
  https://www.youtube.com/watch?v=JAfoos34nCk
 -> Muss man bissel laufen lassen, dann wirds richtig richtig interessant
 * Unpleasant Design: https://www.youtube.com/watch?v=NWZLB8CyPbM
-* Aigle is dead - Agile vs Scrum™ https://www.youtube.com/watch?v=a-BOSpxYJ9M
-
+* Agile is dead - Agile vs Scrum™ https://www.youtube.com/watch?v=a-BOSpxYJ9M
+* https://www.youtube.com/watch?v=HZyRQ8Uhhmk
 * https://gedankenwelt.de/9-zeichen-fuer-psychologische-manipulation/
 * https://carsten-bach.com/manipulationstricks-und-manipulative-rhetorik-so-lassen-sie-sich-nicht-mehr-manipulieren
 * Gewaltfreie Kommunikation Nach Rosenberg
