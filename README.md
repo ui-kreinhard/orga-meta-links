@@ -1,5 +1,5 @@
 # orga-meta-links
-Eine Liste von (populärwissenschaftlichen) Büchern, Videos, Blogs zu Themen der Kommunikation, Management, Organisation
+Eine Liste von (populärwissenschaftlichen) Büchern, Videos, Blogs zu Themen der Kommunikation, Management, Organisation und auch zum agilen Arbeiten
 
 * Kommunikationstraining von Birkenbihl
 * Buecher von Joe Navarro - Autodidakt bzgl Koerpersprache
@@ -24,6 +24,7 @@ Patricia Döhle, Autorin, brand eins & Gründerin, brand eins safari
  https://www.youtube.com/watch?v=JAfoos34nCk
 -> Muss man bissel laufen lassen, dann wirds richtig richtig interessant
 * Unpleasant Design: https://www.youtube.com/watch?v=NWZLB8CyPbM
+* Aigle is dead - Agile vs Scrum™ https://www.youtube.com/watch?v=a-BOSpxYJ9M
 
 * https://gedankenwelt.de/9-zeichen-fuer-psychologische-manipulation/
 * https://carsten-bach.com/manipulationstricks-und-manipulative-rhetorik-so-lassen-sie-sich-nicht-mehr-manipulieren
