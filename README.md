@@ -2,6 +2,7 @@
 Eine Liste von (populärwissenschaftlichen) Büchern, Videos, Blogs zu Themen der Kommunikation, Management, Organisation und auch zum agilen Arbeiten
 
 * Kommunikationstraining von Birkenbihl
+* Schnelles Denken - langsames Denken
 * Buecher von Joe Navarro - Autodidakt bzgl Koerpersprache
 * Monkey Management
 * Mad Business
