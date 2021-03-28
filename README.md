@@ -31,3 +31,4 @@ Patricia Döhle, Autorin, brand eins & Gründerin, brand eins safari
 * https://carsten-bach.com/manipulationstricks-und-manipulative-rhetorik-so-lassen-sie-sich-nicht-mehr-manipulieren
 * Gewaltfreie Kommunikation Nach Rosenberg
 * Podcast zu Entscheidungen - prinzipiell schnelles, langsames Denken und deren Konsequenzen https://www.bbc.co.uk/programmes/m000t40w
+* https://www.youtube.com/watch?v=kmFcNyZrUNM&list=PL-7cgRP6G3ndkQ5ZI2Ugsjo1dnJIwC8XJ&index=4
