@@ -34,3 +34,4 @@ Patricia Döhle, Autorin, brand eins & Gründerin, brand eins safari
 * https://www.youtube.com/watch?v=kmFcNyZrUNM&list=PL-7cgRP6G3ndkQ5ZI2Ugsjo1dnJIwC8XJ&index=4
 * Konversation & Sprache
 ** https://en.wikipedia.org/wiki/Cooperative_principle dazu https://www.youtube.com/watch?v=IJEaMtNN_dM
+* https://skepticalscience.com/PLURV-Taxonomie-und-Definitionen.shtml?s=09 
