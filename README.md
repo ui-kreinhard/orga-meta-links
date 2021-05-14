@@ -35,3 +35,4 @@ Patricia Döhle, Autorin, brand eins & Gründerin, brand eins safari
 * Konversation & Sprache
 ** https://en.wikipedia.org/wiki/Cooperative_principle dazu https://www.youtube.com/watch?v=IJEaMtNN_dM
 * https://skepticalscience.com/PLURV-Taxonomie-und-Definitionen.shtml?s=09 
+* https://de.wikipedia.org/wiki/Survivorship_Bias - Nicht nur das Flugzeug anschauen/lesen
