@@ -36,3 +36,5 @@ Patricia Döhle, Autorin, brand eins & Gründerin, brand eins safari
 ** https://en.wikipedia.org/wiki/Cooperative_principle dazu https://www.youtube.com/watch?v=IJEaMtNN_dM
 * https://skepticalscience.com/PLURV-Taxonomie-und-Definitionen.shtml?s=09 
 * https://de.wikipedia.org/wiki/Survivorship_Bias - Nicht nur das Flugzeug anschauen/lesen
+* https://de.m.wikipedia.org/wiki/Falsche_Ausgewogenheit
+Auch mmn in Organisationen relevant bei Themen die augenscheinlich kontrovers sind
