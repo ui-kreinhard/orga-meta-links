@@ -39,3 +39,4 @@ Patricia Döhle, Autorin, brand eins & Gründerin, brand eins safari
 * https://de.m.wikipedia.org/wiki/Falsche_Ausgewogenheit
 Auch mmn in Organisationen relevant bei Themen die augenscheinlich kontrovers sind
 * Das Harvard Konzept 
+* https://de.wikipedia.org/wiki/Machiavellismus zum gruebeln im Projektkontext
