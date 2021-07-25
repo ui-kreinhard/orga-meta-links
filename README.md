@@ -40,3 +40,4 @@ Patricia Döhle, Autorin, brand eins & Gründerin, brand eins safari
 Auch mmn in Organisationen relevant bei Themen die augenscheinlich kontrovers sind
 * Das Harvard Konzept - interessant um auch bei Meetings Sachfragen in den Fokus zu setzen -> 
 * https://de.wikipedia.org/wiki/Machiavellismus zum gruebeln im Projektkontext
+* https://www.simplethread.com/agile-at-20-the-failed-rebellion/
