@@ -43,6 +43,7 @@ Auch mmn in Organisationen relevant bei Themen die augenscheinlich kontrovers si
 * https://www.simplethread.com/agile-at-20-the-failed-rebellion
 * interessant um das eine oder andere aufzufrischen/neues zu lernen
 ** https://www.youtube.com/watch?v=ellsBGrWwYs
+* https://www.youtube.com/watch?v=j104uA0GviM&list=PL_IxoDz1Nq2Yasewr3ciu55Kd6o5AZtRX
 
 Sehr interessant auch im Zusammenhang mit meetings in unternehmen
 * https://www.researchgate.net/publication/271874587_How_Not_to_Answer_Questions_in_Political_Interviews
