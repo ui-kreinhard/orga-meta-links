@@ -33,7 +33,7 @@ Patricia Döhle, Autorin, brand eins & Gründerin, brand eins safari
 * Podcast zu Entscheidungen - prinzipiell schnelles, langsames Denken und deren Konsequenzen https://www.bbc.co.uk/programmes/m000t40w
 * https://www.youtube.com/watch?v=kmFcNyZrUNM&list=PL-7cgRP6G3ndkQ5ZI2Ugsjo1dnJIwC8XJ&index=4
 * Konversation & Sprache
-** https://en.wikipedia.org/wiki/Cooperative_principle dazu https://www.youtube.com/watch?v=IJEaMtNN_dM
+ * https://en.wikipedia.org/wiki/Cooperative_principle dazu https://www.youtube.com/watch?v=IJEaMtNN_dM
 * https://skepticalscience.com/PLURV-Taxonomie-und-Definitionen.shtml?s=09 
 * https://de.wikipedia.org/wiki/Survivorship_Bias - Nicht nur das Flugzeug anschauen/lesen
 * https://de.m.wikipedia.org/wiki/Falsche_Ausgewogenheit
@@ -44,11 +44,13 @@ Auch mmn in Organisationen relevant bei Themen die augenscheinlich kontrovers si
 * interessant um das eine oder andere aufzufrischen/neues zu lernen
 ** https://www.youtube.com/watch?v=ellsBGrWwYs
 * https://www.youtube.com/watch?v=j104uA0GviM&list=PL_IxoDz1Nq2Yasewr3ciu55Kd6o5AZtRX
+* Simon Sinek
+ * https://youtu.be/0bFs6ZiynSU
+ * https://youtu.be/0bFs6ZiynSU - interessanter Punkt über Business games
+* https://www.nfx.com/post/paradox-of-genius
 
 Sehr interessant auch im Zusammenhang mit meetings in unternehmen
 * https://www.researchgate.net/publication/271874587_How_Not_to_Answer_Questions_in_Political_Interviews
 * https://uebermedien.de/62463/von-den-35-arten-fragen-nicht-zu-beantworten-hat-armin-laschet-die-36-gewaehlt/
 * https://de.wikipedia.org/wiki/Barnum-Effekt
-* Simon Sinek
-** https://youtu.be/0bFs6ZiynSU
-** https://youtu.be/0bFs6ZiynSU - interessanter Punkt über Business games
+
