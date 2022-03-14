@@ -48,6 +48,7 @@ Auch mmn in Organisationen relevant bei Themen die augenscheinlich kontrovers si
  * https://youtu.be/0bFs6ZiynSU
  * https://youtu.be/0bFs6ZiynSU - interessanter Punkt über Business games
 * https://www.nfx.com/post/paradox-of-genius
+* https://formaler-wahnsinn.de/motivation-warum-man-die-erfahrungen-aus-vereinen-nicht-auf-unternehmen-uebertragen-kann/
 
 Sehr interessant auch im Zusammenhang mit meetings in unternehmen
 * https://www.researchgate.net/publication/271874587_How_Not_to_Answer_Questions_in_Political_Interviews
