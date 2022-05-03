@@ -56,3 +56,4 @@ Sehr interessant auch im Zusammenhang mit meetings in unternehmen
 * https://de.wikipedia.org/wiki/Barnum-Effekt
 
 * https://youtu.be/qP07oyFTRXc Double speech
+* https://en.m.wikipedia.org/wiki/Doublespeak
