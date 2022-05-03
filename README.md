@@ -55,3 +55,4 @@ Sehr interessant auch im Zusammenhang mit meetings in unternehmen
 * https://uebermedien.de/62463/von-den-35-arten-fragen-nicht-zu-beantworten-hat-armin-laschet-die-36-gewaehlt/
 * https://de.wikipedia.org/wiki/Barnum-Effekt
 
+* https://youtu.be/qP07oyFTRXc Double speech
