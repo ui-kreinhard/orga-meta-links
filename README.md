@@ -57,3 +57,9 @@ Sehr interessant auch im Zusammenhang mit meetings in unternehmen
 
 * https://youtu.be/qP07oyFTRXc Double speech
 * https://en.m.wikipedia.org/wiki/Doublespeak
+
+Cognitive (over)load
+
+Baba Shiv experiment: 
+https://whywereason.wordpress.com/tag/baba-shiv/
+https://youtu.be/prMuDIiFyC4?t=325
