@@ -66,3 +66,4 @@ https://whywereason.wordpress.com/tag/baba-shiv/
 https://youtu.be/prMuDIiFyC4?t=325
 
 Leading Change Kotter - Klassiker
+https://youtu.be/sybo484veJY?si=RK4ZO_o0l81BWaFG
