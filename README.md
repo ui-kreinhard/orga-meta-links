@@ -61,6 +61,8 @@ Sehr interessant auch im Zusammenhang mit meetings in unternehmen
 
 Cognitive (over)load
 
+* Der neue chef
+
 Baba Shiv experiment: 
 https://whywereason.wordpress.com/tag/baba-shiv/
 https://youtu.be/prMuDIiFyC4?t=325
