@@ -57,7 +57,7 @@ Sehr interessant auch im Zusammenhang mit meetings in unternehmen
 * https://de.wikipedia.org/wiki/Barnum-Effekt
 
 * https://youtu.be/qP07oyFTRXc Double speech
-* https://en.m.wikipedia.org/wiki/Doublespeak
+* 
 
 Cognitive (over)load
 
@@ -66,6 +66,8 @@ Cognitive (over)load
 Baba Shiv experiment: 
 https://whywereason.wordpress.com/tag/baba-shiv/
 https://youtu.be/prMuDIiFyC4?t=325
+
+https://de.m.wikipedia.org/wiki/Kostenkrankheit
 
 Leading Change Kotter - Klassiker
 https://youtu.be/sybo484veJY?si=RK4ZO_o0l81BWaFG
