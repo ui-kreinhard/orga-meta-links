@@ -71,3 +71,6 @@ https://de.m.wikipedia.org/wiki/Kostenkrankheit
 
 Leading Change Kotter - Klassiker
 https://youtu.be/sybo484veJY?si=RK4ZO_o0l81BWaFG
+
+
+https://de.m.wikipedia.org/wiki/Ikarus-Paradox
