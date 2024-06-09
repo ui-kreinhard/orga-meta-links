@@ -74,3 +74,5 @@ https://youtu.be/sybo484veJY?si=RK4ZO_o0l81BWaFG
 
 
 https://de.m.wikipedia.org/wiki/Ikarus-Paradox
+
+https://www.youtube.com/watch?v=iuYlGRnC7J8
