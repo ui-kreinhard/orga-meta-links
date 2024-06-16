@@ -67,6 +67,8 @@ Baba Shiv experiment:
 https://whywereason.wordpress.com/tag/baba-shiv/
 https://youtu.be/prMuDIiFyC4?t=325
 
+https://de.m.wikipedia.org/wiki/Abilene-Paradox
+
 https://de.m.wikipedia.org/wiki/Kostenkrankheit
 
 Leading Change Kotter - Klassiker
