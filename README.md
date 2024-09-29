@@ -80,5 +80,7 @@ https://de.m.wikipedia.org/wiki/Ikarus-Paradox
 https://www.youtube.com/watch?v=_K_Xc8NrSCE
 
 https://www.youtube.com/watch?v=iuYlGRnC7J8
+
+was wirklich empathie bedeutet: https://www.youtube.com/watch?v=J6aZhfj9NVM
 https://youtu.be/amdXa3CfzHw?si=d3sEgIsXOh5VVuFI
 https://youtu.be/L5lsYI0Q8zw?si=UJUrzfsRe3UVgVtA
